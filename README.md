@@ -40,7 +40,7 @@
 * Yaku: Yuujou Dangi
 * [W H I T E](https://yitzilitt.itch.io/white) 
 * [Lost in the Static](https://silverspaceship.com/static/)
-* [G1Deon: Towards God](https://mega.nz/folder/UIkUkALD#amR25OFOYQOD63mCNBbrMQ)
+* [G1Deon: Towards God](https://mega.nz/folder/UIkUkALD#amR25OFOYQOD63mCNBbrMQ) - ([Mirror](https://drive.google.com/drive/folders/1OahnrZJLB0yORe1qBjMhgDfblxDH1ZCn))
 * [Deepmatrix](http://www.deepmatrix.org/)
 * [Biogenesis](https://sourceforge.net/projects/biogenesis/)
 * [78641](http://gzstorm.com/78641/)
