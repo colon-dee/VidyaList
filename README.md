@@ -33,3 +33,4 @@
 * [Habitat](https://frandallfarmer.github.io/neohabitat-doc/docs/)
 * [Zeddas: Labyrinthe](https://mega.nz/file/kE9xiZiI#pIgWtyBAYLTRd2mF5YD-o45PM0muzm7_d7oxEwJZKNE)
 * [3D Virtual Creature Evolution (3DVCE)](http://www.mediafire.com/file/s71k1ri6xo28qri/3D_Creature_Evolution.zip/file)
+* [Funny Pizza Land](https://www.indiedb.com/games/funny-pizza-land)
