@@ -52,3 +52,4 @@
 * [The Fantastic Game Fan Remake](https://www.indiedb.com/games/the-fantastic-game-remake/downloads/fantastic1fan-v462eb)
 * [scaregame](http://www.mediafire.com/file/t7vjc8d8umcr4rj/scaregame.zip/file)
 * [The Sewers](https://www.indiedb.com/games/the-sewers)
+* [Bechebar](https://drive.google.com/open?id=1SdamR4bDX03fUs6ym1jX0XbPJ_13-c9f)
