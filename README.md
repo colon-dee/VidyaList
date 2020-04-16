@@ -34,6 +34,6 @@
 * [Zeddas: Labyrinthe](https://mega.nz/file/kE9xiZiI#pIgWtyBAYLTRd2mF5YD-o45PM0muzm7_d7oxEwJZKNE)
 * [3D Virtual Creature Evolution (3DVCE)](http://www.mediafire.com/file/s71k1ri6xo28qri/3D_Creature_Evolution.zip/file)
 * [Život není krásný stuff](http://znk.cz/en/games/)
-* []()
-* [BAT CASTLE ](https://gamejolt.com/games/bat-castle/5049)
+* [GAMEDOG](https://zerofeedback.tumblr.com/post/50425273711/gamedog-quimdung-thecatamites)
+* [BAT CASTLE](https://gamejolt.com/games/bat-castle/5049)
 * Yaku: Yuujou Dangi
