@@ -13,7 +13,7 @@
 * [Nico](https://gamejolt.com/games/nico/60751)
 * [The life of a salesman](https://web.archive.org/web/20141016143513/http://sandbox.yoyogames.com/games/140512-the-life-of-a-salesman-remake)
 * [Kitty's games](https://kittyhorrorshow.itch.io/)
-* Roly Poly
+* [Roly Poly](https://drive.google.com/drive/folders/1pHj_hv0QGPD8kkQPzCBG8HJ0ph725_Wq)
 * [Dooms 2](https://web.archive.org/web/20070701213310/http://www.givemebeer.caliburgames.com/dooms2.html)
 * [The Terrible Whiteness of Appalachian Nights](https://ded.increpare.com/~locus/whiteness/)
 * [All of Horses' stuff actually](https://iamqqqqqqq.itch.io/)
@@ -23,7 +23,7 @@
 * [Hadegonia](https://www.moddb.com/games/hadegonia)
 * [Judith](http://distractionware.com/blog/2009/04/judith/)
 * [&&](https://mega.nz/#!fxNBmIRS!ahoN75BHvEaqxMfSY3z-Y1p4ETPtcV9yb4KxBc_H1IQ)
-* lab.serotoninphobia.info
+* [lab.serotoninphobia.info](lab.serotoninphobia.info)
 * [Arcane Kids' bs](https://arcanekids.com/)
 * [Worlds.com of course](http://www-static.us.worlds.net/cgi-bin/download.cgi?action=full&bundle=WorldsCurrentVer)
 * [Painted Tomb](https://gamejolt.com/games/painted-tomb/48849)
@@ -34,3 +34,8 @@
 * [Zeddas: Labyrinthe](https://mega.nz/file/kE9xiZiI#pIgWtyBAYLTRd2mF5YD-o45PM0muzm7_d7oxEwJZKNE)
 * [3D Virtual Creature Evolution (3DVCE)](http://www.mediafire.com/file/s71k1ri6xo28qri/3D_Creature_Evolution.zip/file)
 * [Funny Pizza Land](https://www.indiedb.com/games/funny-pizza-land)
+* [Život není krásný stuff](http://znk.cz/en/games/)
+* [GAMEDOG](https://zerofeedback.tumblr.com/post/50425273711/gamedog-quimdung-thecatamites)
+* [BAT CASTLE](https://gamejolt.com/games/bat-castle/5049)
+* Yaku: Yuujou Dangi
+
