@@ -39,3 +39,11 @@
 * [BAT CASTLE](https://gamejolt.com/games/bat-castle/5049)
 * Yaku: Yuujou Dangi
 * [W H I T E](https://yitzilitt.itch.io/white) 
+* [Lost in the Static](https://silverspaceship.com/static/)
+* [G1Deon: Towards God](https://mega.nz/folder/UIkUkALD#amR25OFOYQOD63mCNBbrMQ)
+* [Deepmatrix](http://www.deepmatrix.org/)
+* [Biogenesis](https://sourceforge.net/projects/biogenesis/)
+* [78641](http://gzstorm.com/78641/)
+* [Microsoft: V-Chat](http://timigi.com/Stuff/Archive/vchat/vchat.html)
+* [Xocotl: God of Stars](https://web.archive.org/web/20141016172544/http://sandbox.yoyogames.com/games/29094/download)
+* [Kill Dad](https://nurseostsaudy.itch.io/kill-dad)
