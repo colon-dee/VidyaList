@@ -24,8 +24,7 @@
 * [Façade](https://www.playablstudios.com/facade)
 * [Hadegonia](https://www.moddb.com/games/hadegonia)
 * [Judith](http://distractionware.com/blog/2009/04/judith/)
-* [&&](https://mega.nz/#!fxNBmIRS!ahoN75BHvEaqxMfSY3z-Y1p4ETPtcV9yb4KxBc_H1IQ) - ([Mirror]
-(https://drive.google.com/open?id=1EnH7kZTJ2j-xM3gT70gCkQScxG4iHKRS))
+* [&&](https://mega.nz/#!fxNBmIRS!ahoN75BHvEaqxMfSY3z-Y1p4ETPtcV9yb4KxBc_H1IQ) 
 * [lab.serotoninphobia.info](http://lab.serotoninphobia.info/)
 * [Arcane Kids' bs](https://arcanekids.com/)
 * [Worlds.com of course](http://www-static.us.worlds.net/cgi-bin/download.cgi?action=full&bundle=WorldsCurrentVer)
