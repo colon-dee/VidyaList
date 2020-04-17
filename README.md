@@ -39,7 +39,7 @@
 * [Život není krásný stuff](http://znk.cz/en/games/)
 * [GAMEDOG](https://zerofeedback.tumblr.com/post/50425273711/gamedog-quimdung-thecatamites)
 * [BAT CASTLE](https://gamejolt.com/games/bat-castle/5049)
-* Yaku: Yuujou Dangi
+* [Yaku: Yuujou Dangi](https://drive.google.com/open?id=1gCmHoBjDPqBnH5EH2v9jfv9Cjik0Alym)
 * [W H I T E](https://yitzilitt.itch.io/white) 
 * [Lost in the Static](https://silverspaceship.com/static/)
 * [G1Deon: Towards God](https://mega.nz/folder/UIkUkALD#amR25OFOYQOD63mCNBbrMQ) - ([Mirror](https://drive.google.com/drive/folders/1OahnrZJLB0yORe1qBjMhgDfblxDH1ZCn))
@@ -61,3 +61,31 @@
 * [Scrutiny In The Great Round](https://archive.org/details/scrutiny-in-the-great-round) ([Alt link](https://www.4shared.com/folder/38flN4E7/SITGR.html))
 * [MA-RI-A (人形館の呪い) Curse of the Puppet Museum](https://archive.org/details/MARIAWindows)
 * [Ants](https://www.mobygames.com/game/ants)
+* [LABYRINTHE: HORROR TOUR 3](https://archive.org/details/labyrinthe/mode/2up) - ([Mirror](https://www.myabandonware.com/game/labyrinthe-horror-tour-3-c5x))
+* [Yellow Brick Road III: Harapeko Tsuki To Hoshi Atsume (ハラペコ月と星あつめ](https://www.macintoshrepository.org/18927-yellow-brick-road-iii-harapeko-tsuki-to-hoshi-atsume-ハラペコ月と星あつめ)
+* [Popol Maya](https://archive.org/details/PopolMaya_1997)
+* [Ultra Resort Keroncuel (ウルトラリゾートケロンキュール)](https://www.macintoshrepository.org/20075-ultra-resort-keroncuel-ウルトラリゾートケロンキュール-)
+* [Death Forest](https://satansad.itch.io/death-forest)
+* [Toy Maker](https://satansad.itch.io/toy-maker)
+* [F.MG. The Phantom Hospital](https://www.freem.ne.jp/win/game/13072) - ([Mirror](https://drive.google.com/open?id=1zZPZfN2U21DV8Tt_8J7lOiqvIwZvWBkY))
+* [The Rabbit House](https://www.freem.ne.jp/win/game/8903) - ([Mirror](https://drive.google.com/open?id=1QOpDm6owpci5hqZSgKe-omL5Hpai71OL))
+* [Room](https://www.freem.ne.jp/win/game/7740) - ([Mirror](https://drive.google.com/open?id=1O-Vx4wgj5MeKzstnKL0kHXbedUgOOu6s))
+* [One Room](https://www.freem.ne.jp/win/game/6602) - ([Mirror](https://drive.google.com/open?id=1HgF2mtkVpQ6StB-5uaA6eHg0LRZb9CEs))
+* [Byo-IN](https://www.freem.ne.jp/win/game/9839) - ([Mirror](https://drive.google.com/open?id=1wwWkczuScOLA9yElw2H9VG9NY44sRQeW))
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
