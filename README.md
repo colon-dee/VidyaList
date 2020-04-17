@@ -60,3 +60,4 @@
 * [Zeddas: Servant of Sheol](https://www.4shared.com/dir/2518590/f492d2e4/Zeddas.html#dir=-vJzhd0X)
 * [Scrutiny In The Great Round](https://archive.org/details/scrutiny-in-the-great-round) ([Alt link](https://www.4shared.com/folder/38flN4E7/SITGR.html))
 * [MA-RI-A (人形館の呪い) Curse of the Puppet Museum](https://archive.org/details/MARIAWindows)
+* [Ants](https://www.mobygames.com/game/ants)
