@@ -67,6 +67,7 @@
 * [Room](https://www.freem.ne.jp/win/game/7740) - ([Mirror](https://drive.google.com/open?id=1O-Vx4wgj5MeKzstnKL0kHXbedUgOOu6s))
 * [scaregame](http://www.mediafire.com/file/t7vjc8d8umcr4rj/scaregame.zip/file)
 * [Scrutiny In The Great Round](https://archive.org/details/scrutiny-in-the-great-round) ([Alt link](https://www.4shared.com/folder/38flN4E7/SITGR.html))
+* [Simsheep2](https://drive.google.com/open?id=1jBZtlXHsm6tm0gcij2mhciQtnZnf4Ufc) 
 * [Speedy Eggbert](https://archive.org/details/speedy-eggbert)
 * [The Colony](https://www.mobygames.com/game/colony) ([Alt link](https://classicreload.com/the-colony.html))
 * [The Fantastic Game Fan Remake](https://www.indiedb.com/games/the-fantastic-game-remake/downloads/fantastic1fan-v462eb)
