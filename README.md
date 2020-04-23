@@ -9,7 +9,7 @@
 * [Abashera](http://maxmagnusnorman.com/games_download.shtml)
 * [After](https://aaronoldenburg.itch.io/after)
 * [A Hikikomori's Last Stand](https://www.dropbox.com/s/t060xm4xtqr40br/A%20Hikikomori's%20Last%20Stand%20Installer.zip)
-* [Ants](https://www.mobygames.com/game/ants)
+* [Ants](https://www.mobygames.com/game/ants) - ([Mirror](https://drive.google.com/open?id=1rrt14uC_FoFfcWbgIS7SE1m9SWc9dFWu))
 * [Arcane Kids' bs](https://arcanekids.com/)
 * [A True Western Romance](http://wetgamin.com/western.php)
 * [BAT CASTLE](https://gamejolt.com/games/bat-castle/5049)
