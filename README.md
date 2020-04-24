@@ -87,7 +87,7 @@
 * [Worlds.com of course](http://www-static.us.worlds.net/cgi-bin/download.cgi?action=full&bundle=WorldsCurrentVer)
 * [Xocotl: God of Stars](https://web.archive.org/web/20141016172544/http://sandbox.yoyogames.com/games/29094/download)
 * [Yaku: Yuujou Dangi](https://drive.google.com/open?id=1gCmHoBjDPqBnH5EH2v9jfv9Cjik0Alym)
-* [Yellow Brick Road III: Harapeko Tsuki To Hoshi Atsume (ハラペコ月と星あつめ](https://www.macintoshrepository.org/18927-yellow-brick-road-iii-harapeko-tsuki-to-hoshi-atsume-ハラペコ月と星あつめ)
+* [Yellow Brick Road III: Harapeko Tsuki To Hoshi Atsume (ハラペコ月と星あつめ)](https://www.macintoshrepository.org/18927-yellow-brick-road-iii-harapeko-tsuki-to-hoshi-atsume-ハラペコ月と星あつめ)
 * [Zaphie (제피)](https://www.mobygames.com/game/zaphie) - ([Mirror](https://drive.google.com/open?id=1AP20ap0wCv3HPnptpZc95gWxm4e-00Dd))
 * [Zaphie 2 (제피 2)](https://www.mobygames.com/game/zaphie-2/cover-art/gameCoverId,304385/) - ([Mirror](https://drive.google.com/open?id=1MWs9AMjA3iTzf5a7T12VrmDXCihZQrEK))
 * [Zeddas 3: Labyrinthe](https://mega.nz/file/kE9xiZiI#pIgWtyBAYLTRd2mF5YD-o45PM0muzm7_d7oxEwJZKNE) ([Alt link](https://mega.nz/folder/u7wDjAQY#xRkjB6D4q3IKdS9Om75hNQ) - [Alt link 2](https://archive.org/details/labyrinthe/mode/2up))
