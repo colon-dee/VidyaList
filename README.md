@@ -88,7 +88,7 @@
 * [Xocotl: God of Stars](https://web.archive.org/web/20141016172544/http://sandbox.yoyogames.com/games/29094/download)
 * [Yaku: Yuujou Dangi](https://drive.google.com/open?id=1gCmHoBjDPqBnH5EH2v9jfv9Cjik0Alym)
 * [Yellow Brick Road III: Harapeko Tsuki To Hoshi Atsume (ハラペコ月と星あつめ](https://www.macintoshrepository.org/18927-yellow-brick-road-iii-harapeko-tsuki-to-hoshi-atsume-ハラペコ月と星あつめ)
-* [Zaphie](https://www.mobygames.com/game/zaphie) - [(Mirror](https://drive.google.com/open?id=1AP20ap0wCv3HPnptpZc95gWxm4e-00Dd))
+* [Zaphie](https://www.mobygames.com/game/zaphie) - ([Mirror](https://drive.google.com/open?id=1AP20ap0wCv3HPnptpZc95gWxm4e-00Dd))
 * [Zeddas 3: Labyrinthe](https://mega.nz/file/kE9xiZiI#pIgWtyBAYLTRd2mF5YD-o45PM0muzm7_d7oxEwJZKNE) ([Alt link](https://mega.nz/folder/u7wDjAQY#xRkjB6D4q3IKdS9Om75hNQ) - [Alt link 2](https://archive.org/details/labyrinthe/mode/2up))
 * [Zeddas: Horror Tour 2](https://mega.nz/folder/8wtgUQ5Z#0XGFwKJiOvKkLXrXtDhJpw)
 * [Zeddas: Servant of Sheol](https://www.4shared.com/dir/2518590/f492d2e4/Zeddas.html#dir=-vJzhd0X)
