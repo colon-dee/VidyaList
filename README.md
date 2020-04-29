@@ -78,6 +78,7 @@
 * [Scrutiny In The Great Round](https://archive.org/details/scrutiny-in-the-great-round) ([Alt link](https://www.4shared.com/folder/38flN4E7/SITGR.html))
 * [Simsheep2](https://drive.google.com/open?id=1jBZtlXHsm6tm0gcij2mhciQtnZnf4Ufc) 
 * [Speedy Eggbert](https://archive.org/details/speedy-eggbert)
+* [Super Scary Horror Game](http://trainwrecks361.rssing.com/browser.php?indx=49094711&item=45)
 * [The Colony](https://www.mobygames.com/game/colony) ([Alt link](https://classicreload.com/the-colony.html))
 * [The Fantastic Game Fan Remake](https://www.indiedb.com/games/the-fantastic-game-remake/downloads/fantastic1fan-v462eb)
 * [The life of a salesman](https://web.archive.org/web/20141016143513/http://sandbox.yoyogames.com/games/140512-the-life-of-a-salesman-remake)
