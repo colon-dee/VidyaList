@@ -1,5 +1,4 @@
 # VidyaList
-* [△Nø♢C1iP△](https://jsqrs.itch.io/n0c1ip)
 * [&&](https://mega.nz/#!fxNBmIRS!ahoN75BHvEaqxMfSY3z-Y1p4ETPtcV9yb4KxBc_H1IQ) - ([Mirror](https://drive.google.com/open?id=1EnH7kZTJ2j-xM3gT70gCkQScxG4iHKRS))
 * [(Muse)](http://www.mediafire.com/file/k6di90of00bgtht/[(Muse)]v0.8_.rar)
 * [3D Virtual Creature Evolution (3DVCE)](http://www.mediafire.com/file/s71k1ri6xo28qri/3D_Creature_Evolution.zip/file)
