@@ -42,6 +42,7 @@
 * [Glorious Trainwreckes](https://www.glorioustrainwrecks.com/)
 * [Habitat](https://frandallfarmer.github.io/neohabitat-doc/docs/)
 * [Hadegonia](https://www.moddb.com/games/hadegonia)
+* [Hero's Adventure](https://distractionware.com/blog/2011/08/heros-adventure/)
 * [Hyper Hif 3D Gallery](http://hypergif3dgallery.com/)
 * [Jake Clover Games](https://gamejolt.com/@JakeClover/games)
 * [Judith](http://distractionware.com/blog/2009/04/judith/)
