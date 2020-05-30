@@ -64,6 +64,7 @@
 * [Nico](https://gamejolt.com/games/nico/60751)
 * [One Room](https://www.freem.ne.jp/win/game/6602) - ([Mirror](https://drive.google.com/open?id=1HgF2mtkVpQ6StB-5uaA6eHg0LRZb9CEs))
 * [Painted Tomb](https://gamejolt.com/games/painted-tomb/48849)
+* [Pathways](https://distractionware.com/blog/2009/02/pathways/)
 * [Pekka kana 2](https://www.pistegamez.net/game_pk2.html)
 * [Phobia 3](https://archive.org/details/tucows_275302_Phobia_III_-_Edge_Of_Humanity)
 * [Popol Maya](https://archive.org/details/PopolMaya_1997)
