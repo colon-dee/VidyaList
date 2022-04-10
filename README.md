@@ -68,6 +68,7 @@
 * [Pathways](https://distractionware.com/blog/2009/02/pathways/)
 * [Pekka kana 2](https://www.pistegamez.net/game_pk2.html)
 * [Phobia 3](http://www.freegamearchive.com/download-games/freeware/actions/phobia-iii/13844) - ([Mirror](http://www.jonneweb.net/pelit/pafiledb.php?action=lataa&id=931))
+* [Phobia 2](http://www.jonneweb.net/pelit/file/995/alien-phobia-2/)
 * [Popol Maya](https://archive.org/details/PopolMaya_1997)
 * [Porpentine Games](http://slimedaughter.com/games/)
 * [Quimdung games](http://wiki.selectbutton.net/company:quimdung)
