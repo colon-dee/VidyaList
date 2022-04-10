@@ -67,7 +67,7 @@
 * [Painted Tomb](https://gamejolt.com/games/painted-tomb/48849)
 * [Pathways](https://distractionware.com/blog/2009/02/pathways/)
 * [Pekka kana 2](https://www.pistegamez.net/game_pk2.html)
-* [Phobia 3](https://archive.org/details/tucows_275302_Phobia_III_-_Edge_Of_Humanity)
+* [Phobia 3](http://www.freegamearchive.com/download-games/freeware/actions/phobia-iii/13844)
 * [Popol Maya](https://archive.org/details/PopolMaya_1997)
 * [Porpentine Games](http://slimedaughter.com/games/)
 * [Quimdung games](http://wiki.selectbutton.net/company:quimdung)
